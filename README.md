@@ -1,4 +1,4 @@
-### ⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡⚡
+![](https://i.postimg.cc/c1kypdg2/grass.png)
 
 <!--
 Here are some ideas to get you started:
